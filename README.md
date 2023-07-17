@@ -1,4 +1,4 @@
-## 100 Movies that You Must Watch
+## 🎥100 Movies that You Must Watch
 
 # Objective
 
